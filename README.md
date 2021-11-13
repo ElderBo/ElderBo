@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @ElderBo
-- 👀 I’m interested in Gaming, Designing, Clothing
-- 🌱 I’m currently learning Network Administrating.
+- 👀 I’m interested in Computer,Gaming, Designing, Clothing
 - 💞️ I’m not looking to collaborate on anything. For now
 - 📫 How to reach me uraqt610@gmail.com
 
